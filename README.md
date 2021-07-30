@@ -2,7 +2,8 @@ Hi, I'm Chris Trivino, my goal is to one day work  in military research implemen
 
 I'm looking to collaborate on projects that have to do with defense. I have worked on projects like finding statistics on drone strikes and improving drone algorithms for ground distance.
 
-Please feel free to contact me to talk about projects, research, or even employment purposes.
+Please feel free to contact me to talk about my projects or employment opportunities!
 
 email: tri18004@byui.edu
+
 
