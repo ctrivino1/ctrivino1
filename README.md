@@ -4,6 +4,6 @@ I'm looking to collaborate on projects that have to do with defense. I have work
 
 Please feel free to contact me to talk about my projects or employment opportunities!
 
-email: tri18004@byui.edu
+email: trivinochris124@gmail.com
 
 
